@@ -1,4 +1,4 @@
-<p align="center"><img src="https://count.getloli.com/get/@Frenzycore-github-readme?theme=rule34" /></p>
+<p align="center"><img src="https://count.getloli.com/@Frenzycore?name=Frenzycore&theme=booru-yuyuyui&padding=7&offset=0&align=top&scale=1&pixelated=1&darkmode=auto" /></p>
 
 
 
