@@ -1,4 +1,11 @@
+```
+·  ﹏  ·  ﹏  ·  ﹏  ·  ﹏  ·  ﹏  ·
+Code is written because the mind
+·  ﹏  ·  can no longer hold the ideas
+·  ﹏  ·  ﹏  ·  ﹏  ·  ﹏  ·  ﹏  ·
+Dreams are built because the heart
+·  ﹏  ·  can no longer stay silent.
+·  ﹏  ·  ﹏  ·  ﹏  ·  ﹏  ·  ﹏  ·
+```
 
-<p align="center">
-    <img src="https://count.getloli.com/@Frenzycore?name=My&theme=booru-yuyuyui" />
-</p>
+My love: [@Ornzora](https://github.com/Ornzora) :3
